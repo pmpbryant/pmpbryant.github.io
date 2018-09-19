@@ -7,13 +7,13 @@ Current Position Description
 
 ## Education
 
-`1990 - 1994`
-__University Name__
-Degree Awarded
+`2017-2019`
+__North Carolina State University__
+MA in English (Film Studies)
 
-`1995 - 1997`
-__University Name__
-Degree Awarded 
+`2011-2015`
+__University of North Carolina at Wilmington__
+BA in Film Studies
 
 ## Awards
 
